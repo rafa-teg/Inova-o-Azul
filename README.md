@@ -1,3 +1,4 @@
+![Image](https://github.com/user-attachments/assets/8d06c4a8-b8b6-493c-b49b-767f4719b23d)
 # Inova-o-Azul
 Inovação Azul - Monitoramento Oceânico Inteligente 🌊
 
